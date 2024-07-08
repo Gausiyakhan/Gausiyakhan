@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **gausiyak92@gmail.com**
 
-- ⚡ Fun fact **I am funny.**
+- ⚡ Fun fact **I am Smart.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
